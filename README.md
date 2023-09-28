@@ -1,1 +1,1 @@
-# thirsty-thursday
+# having fun
